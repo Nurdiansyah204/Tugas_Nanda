@@ -1,0 +1,3 @@
+Nanda Nurdiansyah
+XII RPL 1
+SMK FATAHILLAH
